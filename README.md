@@ -1,0 +1,1 @@
+Proper structured data in your news, blog, and sports article page can enhance your appearance in Google Search results. 
